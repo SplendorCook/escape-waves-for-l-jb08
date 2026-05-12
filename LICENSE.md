@@ -1,4 +1,4 @@
-#  
+#  professional Script for escape waves for lucky blocks is the best escape waves for lucky blocks Script, featuring invisibility and auto-farm. Safe
 
 
 
